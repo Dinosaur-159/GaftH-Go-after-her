@@ -1,3 +1,3 @@
 * I write this because I like a girl, but I am not sure how she feels about me. 
 * I hope I will still be able to like her in the future, so I use this feeling to motivate me to learn.
-![Uploading 8fe68c71e344d379afef3e5531acd86.jpg…]()
+[![6Np2FA.md.jpg](https://s3.ax1x.com/2021/03/11/6Np2FA.md.jpg)](https://imgtu.com/i/6Np2FA)
